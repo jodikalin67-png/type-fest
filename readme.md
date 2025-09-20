@@ -1,4 +1,4 @@
-<div align="center">
+jodikalin67@gmail.com<div align="center">
 	<br>
 	<br>
 	<img src="media/logo.svg" alt="type-fest" height="300">
