@@ -1,1 +1,1 @@
-stop
+Jodi kalin only
